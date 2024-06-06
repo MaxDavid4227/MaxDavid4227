@@ -5,4 +5,4 @@
 - 😄 Pronouns: Hmm.. Rainforest. I'm korean and my pronunciation of the name is similar to rainforest
 
 And I'm student and I have learned coding only 1 month
-So please understand even if you don't know.
+So please forgive me if I cann't understand what you are saying
